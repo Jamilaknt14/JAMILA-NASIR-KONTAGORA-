@@ -1,2 +1,0 @@
-# JAMILA-NASIR-KONTAGORA-
-My portfolio 
